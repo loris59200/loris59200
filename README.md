@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @loris59200
+- 👀 I’m interested in tutorials and others
+- 🌱 I’m currently learning all python and c++
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me sussy#0001 on discord :)
+- 🏴・French.
+- 😁 cool guy
